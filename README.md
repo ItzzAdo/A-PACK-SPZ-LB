@@ -1,2 +1,4 @@
 # A-PACK-SPZ-LB
 ADO-LOBBY-SYSTEM, ADO-SPZ-SYSTEM
+
+https://discord.gg/vd5C7kVHNm
